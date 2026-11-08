@@ -1,4 +1,4 @@
-# Hi, I'm ainay001
+# Hi, I'm ainay
 
 **Software & Hardware Developer**
 
